@@ -3,6 +3,7 @@ DO NOT RUN THIS UNLESS YOU WANT TO!
 # Artfuls:
 ### DO NOT RUN THIS!!!!!!!!!!!!!!!!!!!!
 please only run this at YOUR risk and YOUR saftey, (RUN IN VM)
+(Code Cant be publish for Saftey)
 
 https://drive.google.com/file/d/1x0j1GWxJemc_iz0wuYGiNzD1232cpPWJ/view?usp=sharing
 <a href="https://www.youtube.com/@ArtfulEnt">
